@@ -5,4 +5,4 @@
 <a href="https://github.com/gothopera/" rel="nofollow">main</a>
 
 
-<a href="https://github.com/gothopera/" style="color: black; text-decoration: underline;text-decoration-style: dotted;">main</a>
+<a href="https://github.com/gothopera/" style="color: red; text-decoration: underline;text-decoration-style: dotted;">main</a>
