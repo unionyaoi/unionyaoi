@@ -5,5 +5,5 @@
 <sub><a href="https://github.com/gothopera/" rel="nofollow">main</a></sub>
   ⠀ 
 <sub><a href="https://icar6us.tumblr.com/" rel="nofollow">tumblr</a></sub>
-<br>
+
 
