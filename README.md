@@ -5,7 +5,7 @@ yall should totally go commission <a href="https://ywn-commissions.tumblr.com" r
 </p>
 <sub><a href="https://github.com/gothopera/" rel="nofollow">main.</a></sub>
   ⠀ 
-<sub><a href="https://icar6us.tumblr.com/" rel="nofollow">tumblr.</a></sub>
+<sub><a href="https://rentry.co/permanent_smile" rel="nofollow">rentry.</a></sub>
 </p>
   ⠀ 
 <details>
