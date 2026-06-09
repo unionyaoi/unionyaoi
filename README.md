@@ -14,7 +14,7 @@ im not gonna spam follow anyone,, ASK to be moots or wtv!!
 <br>
 i might be a little bit obsessed with umbert and misterman lmao
 </p>
-fck ai and stand with animation guys,, commission REAL artists instead of using slop
+fuck ai and stand with animation guys,, commission REAL artists instead of using slop
 </details>
 
 
